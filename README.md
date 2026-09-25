@@ -1,7 +1,7 @@
 ![](https://64.media.tumblr.com/2f69d878cc8fec7d2baa6277de7883e0/dd78831db1dbaf1d-df/s2048x3072/59346c02b7e8b6a76387bf62cf7c7cc24abfd908.pnj)
 ![](https://64.media.tumblr.com/55447da8db2b70b44577de79a5c6be2f/66a36effcc2850da-89/s1280x1920/d8b6c5d7c58377573ea437771cd26958b3dc9a7b.pnj)
 <h1 align="center">  Mozart  </h1> 
-<p align="center"> 20 \\ Single \\ Gay // sx268 ESFP // HE
+<p align="center"> 20 \\ Single \\ Gay // sx261 ESFP // HE
 <p align="center"> ME Irl; Edgar (Electric Dreams) , Pierrot (TFC) , OTHER+
   
 ![](https://64.media.tumblr.com/225a8f7c71eccdfe0afa65e84bed3e50/66a36effcc2850da-df/s1280x1920/94eedf360a7c9ce4030ed7b4945be3cf398b2471.pnj)
